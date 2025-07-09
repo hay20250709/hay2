@@ -10,4 +10,4 @@
 
 本页面专为喜欢成人剧情影片的用户提供，资源覆盖多个类型，包括巨乳、福字系列等，平台无广告打扰，播放流畅，并支持多设备观看。立即点击，享受优质电影内容。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/hay20250709/hay2 ）</span>
